@@ -1,3 +1,0 @@
-# BtcEurExchange
-# BtcEurExchange
-# BtcEurExchange
